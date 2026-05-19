@@ -127,7 +127,7 @@ Leadership & Delivery          PMP · Scrum Master · SAFe DevOps · Agile
 
 I'm always open to discussing innovative cloud and AI projects, enterprise architecture challenges, or potential collaborations.
 
-📧 **hashim.hilal@gmail.com**
+📧 **hashim.hilal@connect.qut.edu.au**
 
 ---
 
